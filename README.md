@@ -57,4 +57,4 @@ StayPK is not intended for users under 18 years of age.
 
 For any privacy questions, please contact:
 
-Email: support@staypk.app
+Email: saqibmaqsood551@gmail.com
